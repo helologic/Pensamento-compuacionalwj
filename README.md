@@ -1,1 +1,2 @@
 # Pensamento-computacionalwj
+wjkeabsbfwaybuiwanuiwebguibafjknvrh9uhoisio
