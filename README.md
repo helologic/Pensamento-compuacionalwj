@@ -1,1 +1,1 @@
-# Pensamento-compuacionalwj
+# Pensamento-computacionalwj
